@@ -1,2 +1,2 @@
 # birdsaword.github.io
-website
+fuck you
